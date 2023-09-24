@@ -8,4 +8,4 @@ There are many movies in the *Shrek* universe. Currently there are 4 mainline mo
 ## [Shrek](https://www.imdb.com/title/tt0126029/)
 <img src="https://mediaproxy.salon.com/width/1200/https://media.salon.com/2001/05/shrek.jpg" alt="shrek1" width="600" height="450">
 
-The original film *Shrek* made in 2001 was an amazing and revolutionary film. It was goofy. 
+The original film *Shrek* made in 2001 was an amazing and revolutionary film. It was goofy. A good subversion of classic fairytales unseen by other mainstream animation studios. This movie contain the majority of classic scenes like Shrek getting ready to the Smash Mouth song [*All Star*](https://youtu.be/L_jWHffIx5E?si=wDXCfuPA20Vzk8k2), the line "some of you may die, but that's a sacrifice I am willing to make," and Fiona's singing exploding a bird. All of which can be seen as jabs against Disney's brand when it comes to their business.
