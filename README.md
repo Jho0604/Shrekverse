@@ -6,3 +6,6 @@
 There are many movies in the *Shrek* universe. Currently there are 4 mainline movies, 2 holiday TV specials, and 2 spin-off feature length films. Besides official films the *Shrek* franchise also has a rather influential impact on modern culture; [Shrek the Musical](https://playbill.com/production/shrek-the-musical-broadway-theatre-vault-0000012248)—a musical based on the first film, [Shrek Retold](https://youtu.be/pM70TROZQsI?si=KqP2z7sK-7pTTpWv)—a fan recreation of the original film, and many [memes](https://knowyourmeme.com/memes/subcultures/shrek) online all signifies the significance of this series in pop culture. In this blog I will discuss my personal opinions on the mainline films and some of the other variations of it.
 
 ## [Shrek](https://www.imdb.com/title/tt0126029/)
+<img src="https://mediaproxy.salon.com/width/1200/https://media.salon.com/2001/05/shrek.jpg" alt="shrek1" width="600" height="450">
+
+The original film *Shrek* made in 2001 was an amazing and revolutionary film. It was goofy. 
