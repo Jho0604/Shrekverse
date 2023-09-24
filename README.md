@@ -1,3 +1,5 @@
+theme: jekyll-theme-hacker
+
 # Shrekverse
 The cinematic universe of DreamWork Animation's Shrek.
 
