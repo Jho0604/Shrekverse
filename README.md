@@ -18,7 +18,7 @@ The original film *Shrek* made in 2001 was amazing and revolutionary. It was goo
 Made 3 years after the original in 2004, the first sequel to *Shrek* was made. As a sequel, it does exceptionally well at preserving the original message of the first film and making meaningful additions to the universe of *Shrek* interestingly and compellingly. For example the kingdom of "Far Far Away" makes sense for the world-building of the universe, it answers the question: "If Fiona is a princess, to what kingdom is she royalty?" this builds the world without making the addition feel out of place. The only thing that does feel weird though is how Puss in Boots is brought into the story, he's hired to assassinate Shrek, but after he fails he just kinda sticks around. Although overall it's fine since he works well for the group dynamic between Shrek and Donkey.
 
 ## [Shrek the Third](https://www.imdb.com/title/tt0413267/?ref_=nv_sr_srsg_0_tt_8_nm_0_q_shrek%25203)
-![](https://thumbs.dreamstime.com/b/shrek-cartoon-character-26294630.jpg)
+<img src="https://thumbs.dreamstime.com/b/shrek-cartoon-character-26294630.jpg" alt="shr3k" width="451" height="300">
 
 It's pretty mid ngl. The new characters don't mesh well with the old ones and the plot feels forced with some pretty bad character motivation to push it. There are some good moments, but it's not enough to make the movie that good.
 
