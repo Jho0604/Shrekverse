@@ -21,6 +21,6 @@ Made 3 years after the original in 2004, the first sequel to *Shrek* was made. A
 It's pretty mid ngl. The new characters don't mesh well with the old ones and the plot feels forced with some pretty bad character motivation to push it. There are some good moments, but it's not enough to make the movie that good.
 
 ## [Shrek Forever After](https://www.imdb.com/title/tt0892791/?ref_=nv_sr_srsg_0_tt_8_nm_0_q_shrek%2520for)
-![](https://st4.depositphotos.com/18930416/20932/i/450/depositphotos_209325306-stock-photo-blackpool-january-madame-tussauds-2018.jpg)
+<img src="https://pngimg.com/uploads/shrek/shrek_PNG37.png" alt="shrek4evr" width="400" height="340">
 
 It's ok. Not as enjoyable as the first or second movie, but is more intresting of a plotline than the thrid. Me personally, I would have named the movie "Shrek 4ever After" or "Shrek fourever After," but whatever. I like how this is like someone's AU fanfiction, that's silly.
